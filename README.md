@@ -1,1 +1,1 @@
-2019 React codecampin aikaansaannoksemme.
+2019 React codecampin ryhmämme projekti.
